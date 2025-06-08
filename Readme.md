@@ -1,0 +1,1 @@
+pertemuan 7 kita akan retas website dumpy menggunakan code python !!!! konsep
